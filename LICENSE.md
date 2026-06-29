@@ -1,4 +1,4 @@
-
+top one tap Scripts offers the most advanced one tap Script, with no clip and auto-sell. Perfect for dominating any match.
 
 
 
